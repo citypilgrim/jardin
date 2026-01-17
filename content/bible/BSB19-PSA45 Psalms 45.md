@@ -1,0 +1,26 @@
+---
+title: "Ps 45"
+author: ["ninetyfourthings"]
+date: 2026-01-08T00:00:00+08:00
+lastmod: 2026-01-08T00:00:00+08:00
+tags: ["bible", "bsb", "faith"]
+draft: false
+---
+
+1.  My heart is stirred by a noble themeas I recite my verses to the king;my tongue is the pen of a skillful writer. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+2.  You are the most handsome of men;grace has anointed your lips,since God has blessed you forever. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+3.  Strap your sword at your side, O mighty warrior;appear in your majesty and splendor. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+4.  In your splendor ride forth in victoryon behalf of truth and humility and justice;may your right hand show your awesome deeds. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+5.  Your arrows pierce the hearts of the king’s foes;the nations fall beneath your feet.  For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+6.  Your throne, O God, endures forever and ever,and justice is the scepter of Your kingdom. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+7.  You have loved righteousnessand hated wickedness;therefore God, your God, has anointed youabove your companions with the oil of joy.  For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+8.  All your garments are fragrantwith myrrh and aloes and cassia;from palaces of ivory the harps make you glad. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+9.  The daughters of kings are among your honored women;the queen stands at your right hand,adorned with the gold of Ophir.  For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+10. Listen, O daughter! Consider and incline your ear:Forget your people and your father’s house, For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+11. and the king will desire your beauty;bow to him, for he is your lord. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+12. The Daughter of Tyre will come with a gift;men of wealth will seek your favor.  For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+13. All glorious is the princess in her chamber;her gown is embroidered with gold. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+14. In colorful garments she is led to the king;her virgin companions are brought before you. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+15. They are led in with joy and gladness;they enter the palace of the king.  For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+16. Your sons will succeed your fathers;you will make them princes throughout the land. For the choirmaster. To the tune of “The Lilies.” A Maskil of the sons of Korah. A love song.
+17. I will commemorate your name through all generations;therefore the nations will praise you forever and ever.
